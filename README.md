@@ -7,3 +7,7 @@ Cretaed By:
 Notebook link:
 
 Youtube Links:
+
+Ques 1 : https://www.youtube.com/watch?v=MPPcG1ex6tM 
+Ques 2 : https://www.youtube.com/watch?v=uGvfSJ3jiBs
+Ques 3 : https://www.youtube.com/watch?v=15LmIhtpV1U
