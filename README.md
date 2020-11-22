@@ -1,10 +1,10 @@
 # PY_EndTerm
 
-Cretaed By:
+Created By:
 1. Kaviya U C - D20018
 2. Shivani Nehra - D20031
 
-Notebook link:
+Notebook link:https://github.com/Kaviya-U-C/PY_EndTerm/blob/main/D20018%20-D20031-%20PY-ENDTERM%20.ipynb
 
 Youtube Links:
 
