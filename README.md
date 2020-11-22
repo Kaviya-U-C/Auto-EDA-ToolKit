@@ -8,6 +8,12 @@ Notebook link:
 
 Youtube Links:
 
-Ques 1 : https://www.youtube.com/watch?v=MPPcG1ex6tM 
-Ques 2 : https://www.youtube.com/watch?v=uGvfSJ3jiBs
-Ques 3 : https://www.youtube.com/watch?v=15LmIhtpV1U
+Ques 1: https://youtu.be/M9s21-8znsc
+
+Ques 2: https://youtu.be/iuuu9k0Kuqg
+
+Ques 3: https://youtu.be/mTgPdy8kPIc
+
+Ques 4: https://youtu.be/nkNDiQqFDJI
+
+Ques 5: https://youtu.be/adZ5pSCoGdQ
